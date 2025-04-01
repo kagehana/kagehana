@@ -1,1 +1,1 @@
-@zbzbzbzbzbzbzbzbzb on [__Discord__](https://discord.com)
+@hatesignal on [__Discord__](https://discord.com)
