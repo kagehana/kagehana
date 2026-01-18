@@ -1,1 +1,1 @@
-**@scaryfreakshow** on [__Discord__](https://discord.com)
+**@kureya** on [__Discord__](https://discord.com)
