@@ -1,1 +1,1 @@
-**@kureya** on [__Discord__](https://discord.com)
+**@** on [__Discord__](https://discord.com)
